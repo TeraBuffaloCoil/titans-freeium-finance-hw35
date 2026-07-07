@@ -1,4 +1,4 @@
-# 
+# Titans Freemium lets you invest in thematic portfolios, from tech to renewable energy, with ease and flexibility.
 
 
 
